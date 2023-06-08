@@ -9,7 +9,7 @@
 ![image](https://github.com/odorenskyi/Zaporozhets-Maksym-KB222/assets/124821268/d7a78652-1545-4028-94a7-1296ea7dcf73)
 
 
-Варіант №13
+Варіант № 13
 
 
 Кропивницький | <a href="http://www.kntu.kr.ua/">ЦНТУ</a> | 2023
